@@ -1,1 +1,1 @@
-# Vi vse pidorasi
+# 
